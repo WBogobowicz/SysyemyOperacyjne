@@ -1,0 +1,2 @@
+# SysyemyOperacyjne
+bardzo ambitny
